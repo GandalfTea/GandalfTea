@@ -1,4 +1,7 @@
-### Hi there 👋
+<!--### Hi there 👋 -->
+
+![tumblr_stop_stealing_my_shit](https://user-images.githubusercontent.com/58654842/146656940-d55c5f72-d71b-400f-af37-1683601f04dd.gif)
+
 
 <!--
 **GandalfTea/GandalfTea** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
