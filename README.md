@@ -1,6 +1,6 @@
 <!--### Hi there 👋 -->
 
-![tumblr_stop_stealing_my_shit](https://user-images.githubusercontent.com/58654842/146657077-13fe4ca8-57ac-411f-8b95-aacf29d72ddc.gif)
+![tumblr_stop_stealing_my_shit](https://user-images.githubusercontent.com/58654842/146657077-13fe4ca8-57ac-411f-8b95-aacf29d72ddc.gif) ![1367104084](https://user-images.githubusercontent.com/58654842/146657112-eea66378-cd75-4799-b8a0-97778c01b8ab.gif)
 
 
 <!--
@@ -17,3 +17,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+![146657077-13fe4ca8-57ac-411f-8b95-aacf29d72ddc](https://user-images.githubusercontent.com/58654842/146657116-419bc5a5-f4a8-4d9b-8c21-62b9a7a59cb7.gif)![146657112-eea66378-cd75-4799-b8a0-97778c01b8ab](https://user-images.githubusercontent.com/58654842/146657117-c5bb36c8-574b-420a-9660-34bbf467b145.gif)![146657077-13fe4ca8-57ac-411f-8b95-aacf29d72ddc](https://user-images.githubusercontent.com/58654842/146657118-f216450d-f325-4378-820d-12a73d8c5f90.gif)![146657112-eea66378-cd75-4799-b8a0-97778c01b8ab](https://user-images.githubusercontent.com/58654842/146657119-f93db638-6845-4f01-8857-4cc4d304c9eb.gif)![146657077-13fe4ca8-57ac-411f-8b95-aacf29d72ddc](https://user-images.githubusercontent.com/58654842/146657120-26d7fdd9-30b4-4803-8173-4e05a19f4b68.gif)![146657112-eea66378-cd75-4799-b8a0-97778c01b8ab](https://user-images.githubusercontent.com/58654842/146657121-373b933e-2335-4eb9-9d42-d385811ed3e9.gif)
+
+
+
+
+
