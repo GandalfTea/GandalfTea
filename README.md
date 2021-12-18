@@ -1,6 +1,6 @@
 <!--### Hi there 👋 -->
 
-![hover](https://user-images.githubusercontent.com/58654842/146657035-245155d6-43e4-4469-bce3-0f2aaabcb911.gif)
+![lainpattern](https://user-images.githubusercontent.com/58654842/146657071-8a5608b1-fe5d-4d3c-aa88-6397b5df44c8.gif)
 
 
 <!--
