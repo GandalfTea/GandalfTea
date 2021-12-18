@@ -1,6 +1,6 @@
 <!--### Hi there 👋 -->
 
-![lainpattern](https://user-images.githubusercontent.com/58654842/146657071-8a5608b1-fe5d-4d3c-aa88-6397b5df44c8.gif)
+![tumblr_stop_stealing_my_shit](https://user-images.githubusercontent.com/58654842/146657077-13fe4ca8-57ac-411f-8b95-aacf29d72ddc.gif)
 
 
 <!--
