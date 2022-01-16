@@ -1,8 +1,5 @@
 <!--### Hi there 👋 -->
-
-![tumblr_stop_stealing_my_shit](https://user-images.githubusercontent.com/58654842/146657077-13fe4ca8-57ac-411f-8b95-aacf29d72ddc.gif) ![1367104084](https://user-images.githubusercontent.com/58654842/146657171-0c8c79f0-38e6-4456-a306-8be3bb70554e.gif)
-
-
+![image](https://user-images.githubusercontent.com/58654842/149643447-a98aab43-8e98-4a23-b938-dba305cd008f.png)
 
 
 
