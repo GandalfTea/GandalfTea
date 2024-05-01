@@ -3,4 +3,6 @@
 <!-- ![jayce](https://github.com/GandalfTea/GandalfTea/assets/58654842/cf4f6dee-9a20-44e8-a25b-fc8f3138a045) -->
 <!-- ![for_loyal_user](https://github.com/GandalfTea/GandalfTea/assets/58654842/4152a7ed-d5d7-4152-b9b2-b1b940e7885d) -->
 
-![for_cherished_member](https://github.com/GandalfTea/GandalfTea/assets/58654842/9f8f285c-96bc-4f82-b51e-eee940b195d0)
+<!-- ![image](https://github.com/GandalfTea/GandalfTea/assets/58654842/abe5d303-4ac2-4c27-8af0-494a369ff3f4) -->
+![image](https://github.com/GandalfTea/GandalfTea/assets/58654842/007f10e1-3928-43ba-887b-9b899d720189)
+
