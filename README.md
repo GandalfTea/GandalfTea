@@ -5,6 +5,7 @@
 
 <!-- ![image](https://github.com/GandalfTea/GandalfTea/assets/58654842/abe5d303-4ac2-4c27-8af0-494a369ff3f4) -->
 <!-- ![image](https://github.com/GandalfTea/GandalfTea/assets/58654842/007f10e1-3928-43ba-887b-9b899d720189) -->
-![image](https://github.com/GandalfTea/GandalfTea/assets/58654842/c3021035-4039-4d06-9c33-293c2bf8e1dc)
-
-
+<!-- ![image](https://github.com/GandalfTea/GandalfTea/assets/58654842/c3021035-4039-4d06-9c33-293c2bf8e1dc) -->
+```
+hi
+```
